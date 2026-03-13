@@ -1,2 +1,0 @@
-﻿#Latihan3_Puji-Sulaiman_TI2B
-
